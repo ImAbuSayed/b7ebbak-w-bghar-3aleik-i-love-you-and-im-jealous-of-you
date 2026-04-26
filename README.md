@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> بحبك وبغار عليك
+> روحي دايماً بتناديك
+> في العيون سحر وجمال
+> حبك إنت فوق الخيال
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
